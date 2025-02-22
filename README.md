@@ -1,3 +1,3 @@
 Day
-Monday
+Sunday
 
